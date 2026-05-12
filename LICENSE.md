@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows advanced Script: mixing & collaboration-tools is the best Cubase for PC | Cubase for Windows script, featuring mixing and collaboration-tools.
 
 
 
